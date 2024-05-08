@@ -1,3 +1,3 @@
-Boas vindas S2
+Boas Vindas Cavaleiro S2
 
-![](https://tenor.com/pt-BR/view/sukuna-manga-jujutsu-kaisen-icon-ryomen-sukuna-gif-126893952509858320)
+![](https://media1.tenor.com/m/daxNnlh9q3AAAAAC/king-king-baldwin.gif)
