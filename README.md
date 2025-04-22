@@ -1,3 +1,3 @@
 Boas Vindas Cavaleiro S2
 
-![](https://media1.tenor.com/m/daxNnlh9q3AAAAAC/king-king-baldwin.gif)
+![](https://tenor.com/pt-BR/view/smirking-white-rabbit-devil-may-cry-smiling-netflix-gif-12057399834532816254)
